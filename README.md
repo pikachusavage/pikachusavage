@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### Hi there, nothing much goes on here but feel free to follow if you wish.
 <!--
 **pikachusavage/pikachusavage** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
